@@ -1,1 +1,0 @@
-# gkmhw.github.io.
